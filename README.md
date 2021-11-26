@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Divine4Life (Divine for short)
+- 👀 I’m interested in making minecraft mods/plugins/datapacks/maps
+- 🌱 I’m currently learning things at school
+- 💞️ I’m looking to collaborate on datapacks and plugins
+- 📫 You can reach me at divineejiogu8@gmail.com
